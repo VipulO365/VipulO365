@@ -2,7 +2,7 @@
 
 👀 I’m interested in learning coding. 
 
-🌱 I’m currently learning Office365 and actively working as an Office Support Technical PROFESSIONAL with a designation of Escalation Engineer Tier 2
+🌱 I’m currently working in Office365 technology as Senior Cloud Specialist.
 
 💞️ I’m looking to collaborate on learning coding and any queries on Office365. (Please DM) 
 
